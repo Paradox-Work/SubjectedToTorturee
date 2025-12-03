@@ -1,2 +1,2 @@
 # SubjectedToTorturee
-OOPS
+I created ts AND NOW AM EDITING IT WHILE MY PARTNER IS DELETING TS 
